@@ -8,9 +8,7 @@ Flowers They/He Minor
 
 ![](https://files.catbox.moe/l30bnp.png)
 
-![](https://files.catbox.moe/dhslz3.gif) 
-
-![](https://files.catbox.moe/yg5tgk.gif) 
+![](https://files.catbox.moe/dhslz3.gif)  ![](https://files.catbox.moe/yg5tgk.gif) 
 
 ![](https://files.catbox.moe/utfk3g.gif)
 
